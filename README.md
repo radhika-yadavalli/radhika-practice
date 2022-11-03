@@ -1,3 +1,0 @@
-# radhika-practice
-gggjhbhbju
-fhgjsshabcdefghijklmnop
